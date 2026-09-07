@@ -1,0 +1,1 @@
+Images for JIL promotion
